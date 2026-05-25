@@ -1,1 +1,1 @@
-# memora
+# desktop, laptop, tablet horizontal
